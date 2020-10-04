@@ -4,7 +4,7 @@
 I´m passionet about learning new things every day...
 
 
-![](https://komarev.com/ghpvc/?username=rulo-code&color=green)
+![](https://komarev.com/ghpvc/?username=Sophiecl01&color=green)
 
 
 <p align = "center">
